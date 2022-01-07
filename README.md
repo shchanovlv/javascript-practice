@@ -1,4 +1,4 @@
-Благодарю <b>Владлена Минина</b> https://www.youtube.com/channel/UCg8ss4xW9jASrqWGP30jXiw
+Благодарю <b>Владилена Минина</b> https://www.youtube.com/channel/UCg8ss4xW9jASrqWGP30jXiw
 
 Видео уроки # Практика JavaScript
 
